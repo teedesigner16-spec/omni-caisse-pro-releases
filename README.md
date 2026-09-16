@@ -1,1 +1,1 @@
-Omni Caisse Pro - releases
+Mise à Jours Omni Caisse Pro
